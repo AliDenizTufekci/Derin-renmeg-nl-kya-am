@@ -1,1 +1,1 @@
-# Derin-renmeg-nl-kya-am
+# Derin öğrenme günlük yaşam
